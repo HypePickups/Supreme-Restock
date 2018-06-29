@@ -9,4 +9,4 @@ Follow @woj_prod on Instagram for coding stuff
 
 If you have some lines of code that can help make this better please add 
 
-(I will probably rarely check this so if you really need to get in contact with me PayPal me @madukr@shaw.ca )
+(I will probably rarely check this so if you really need to get in contact, PayPal me @madukr@shaw.ca )
